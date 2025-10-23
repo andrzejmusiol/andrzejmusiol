@@ -3,6 +3,6 @@
 Programming is my job and my passion.
 I believe improvement is the key, it shouldn't be a necessity, it should be a part of the life.
 
-[To contact me - follow this link](https://twitter.com/andrzej_musiol)
+[To contact me - follow this link](https://www.linkedin.com/in/andrzej-musiol)
 
 Stay awesome!
